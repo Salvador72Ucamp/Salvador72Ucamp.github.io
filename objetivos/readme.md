@@ -1,0 +1,1 @@
+lo que espero del curso es aprender lo maximo que pueda y mejorar mis tecnicas de programacion
